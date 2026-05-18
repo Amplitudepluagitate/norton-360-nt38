@@ -1,4 +1,4 @@
-# 
+# elite Bitdefender 全方位安全 PC版 插件 是最佳 Bitdefender 全方位安全 PC版 插件，集成 反广告软件 和 沙盒。安全、可靠、优化，性能最大化。
 
 
 
